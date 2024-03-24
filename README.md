@@ -1,2 +1,3 @@
-MEGA IMPÉRIO » MI NETWORK » Dérck Júnior
-Acess: https://t.me/megaimperio 
+MEGA IMPÉRIO
+Acess: https://t.me/megaimperio
+   - Network is my way.
